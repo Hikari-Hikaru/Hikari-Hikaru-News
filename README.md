@@ -14,19 +14,18 @@
     <p>
       私の小説がXに複数ありまして...(笑)<br>
       ご紹介しようと思いまして『お知らせ』というタイトルにしました！...<br>
-      ①リアルオタ活<br><br>
+      ①リアルオタ活<br>
+      https://x.com/realotakatsu?s=21<br>
+      <br>
+      ②EmmasBlog<br>
+      https://x.com/hikarin_hikarun?s=21<br>
       <br><br>
-      <br><br>
-      ②EmmasBlog<br><br>
-      <br><br>
-      <br><br>
-      ③Daiary<br><br>
-      <br><br>
-      <br><br>
-      ④LuckyMaybe(全編英語です)<br><br>
-      <br><br>
-      <br><br>
-      そんな感じです。笑<br><br>
+      ③Daiary<br>
+      https://x.com/d_i_a_ry_?s=21<br>
+      ④LuckyMaybe(全編英語です)<br>
+      https://x.com/lucky___maybe?s=21<br>
+      <br>
+      そんな感じです。笑<br>
       まだ、他にも考えているものはあるので、<br>
       またXに投稿したらこのブログのdairyいくつかに載せようと思います✨<br><br>
     </p>
