@@ -14,8 +14,9 @@
     <p>
       私の小説がXに複数ありまして...(笑)<br>
       ご紹介しようと思いまして『お知らせ』というタイトルにしました！...<br>
+      <br><br>
       ①リアルオタ活<br>
-      <a href=" https://x.com/realotakatsu?s=21.github.io/RealOtakattsu/"><br>
+      https://x.com/realotakatsu?s=21<br>
       <br>
       ②EmmasBlog<br>
       https://x.com/hikarin_hikarun?s=21<br>
@@ -25,8 +26,7 @@
       <br>
       ④LuckyMaybe(全編英語です)<br>
       https://x.com/lucky___maybe?s=21<br>
-      <br>
-      <br>
+      <br><br>
       そんな感じです。笑<br>
       まだ、他にも考えているものはあるので、<br>
       またXに投稿したらこのブログのdairyいくつかに載せようと思います✨<br><br>
